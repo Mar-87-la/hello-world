@@ -1,2 +1,4 @@
 # hello-world
 Lactancia materna
+la lactancia materna es n tema de suma importancia, ya que  los bebes que consumen leche de formula derivada de la leche de vaca, sufren al consumirla, no descanzan ya que tienen dolor al evacuar, gases y colicos, ya que su microbiota intestinal no esta madura, la leche matern ademas de proporcionarle anticuerpos y de mas nutrientes, le proporciona lactobacillos necesarios para la digestion, esta leche es personalizada y es el mejor alimento para tu bebe, 
+asi que si vas a tener hijos solicita a tu pediatra que no le den formula en el hospital al nacer, solicita que sea  tu leche. ya que el bebe no solo batallra con su digestion si no que tambien para agarrar el pecho , se acostumbrara a  el biberon y sufrira  a la hora que le des el pecho por que no lo va a querer. y necesitaras de una asesora de lactancia para que te apoye. lo  que te generara un gasto inecesario.
